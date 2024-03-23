@@ -1,0 +1,1 @@
+# tehnica_shop_23
